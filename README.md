@@ -1,0 +1,1 @@
+# pertemuan11_A2_AlanJansenSitumorang
